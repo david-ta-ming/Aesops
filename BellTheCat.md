@@ -14,4 +14,4 @@ All the Mice were much surprised that they had not thought of such a plan before
 
 "I will say that the plan of the young Mouse is very good. But let me ask one question: Who will bell the Cat?"
 
-> It is one thing to say that something should be done, but quite a different matter to do it.
+> It is one thing to say that something should be done, but quite a different matter to do it!
